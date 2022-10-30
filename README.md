@@ -1,7 +1,7 @@
 ### Oiii!!👋 Sou a Tainara Nascimento
 
 - 🔭 Trabalho atualmente como Recepcionista
-- 🌱 Atualmente estudo Informática para Internet no Senai MG
+- 🌱 Estudo Informática para Internet no Senai MG
 - 😄 Pronome: Ela/Dela
 - ⚡ Apenas começando...
 <div align="center">
